@@ -8,3 +8,5 @@
 PS: No backend/web dash included
 
 Now go and copy and paste bots.
+
+Edit: Seems like the staff are trying to hide the fact that it got leaked yikes bro
